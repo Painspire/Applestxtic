@@ -1,16 +1,20 @@
-## Hi there 👋
+# Welcome dear! 
 
-<!--
-**Applestxtic/Applestxtic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  <img src="https://files.catbox.moe/l37mvg.jpeg" alt="ALASTOR BANNER" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+</div>
 
-Here are some ideas to get you started:
+## 👋 About Me
+- Call me August or Xylo!
+- Transmasc- Abrosexual 
+- Plays Ponytown 🐴
+- Second account -- not main
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 🧰 Skills
+Nothing yet... but I’m learning! 🌱
+Yes I'm useless
+
+---
+
+⭐ **Thanks for visiting my profile!**
