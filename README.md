@@ -5,15 +5,14 @@
 </div>
 
 ## 👋 About Me
-- Call me August or Xylo!
-- Transmasc- Abrosexual 
+- Call me Xylo!
+- Transgender- Abrosexual-almondsexual
 - Plays Ponytown 🐴
-- Second account -- not main
+- finding out theriotype 🦝
 ---
 
-### 🧰 Skills
-Nothing yet... but I’m learning! 🌱
-Yes I'm useless
+### what can i do 🎸
+Run very fast, i can do quadrobics (not rn i twisted my ankle :(]
 
 ---
 
